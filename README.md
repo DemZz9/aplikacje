@@ -1,0 +1,2 @@
+# aplikacje
+możemy sobie pominąć
